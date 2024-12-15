@@ -1,7 +1,6 @@
 # CSP-OPTIMIZER-v2.0.0-
 PREMIUM PC OPTIMIZATION SOFTWARE
-![Capture](https://github.com/CASPERzew/CSP-OPTIMIZER-v2.0.0-/assets/69422046/714394c6-e755-4367-854c-c42b1a467434)
-
+![Capture](https://github.com/user-attachments/assets/28ec02cf-b39f-40fa-994e-148767b12f46)
 
 
 
