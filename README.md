@@ -1,7 +1,6 @@
 # CSP-OPTIMIZER-v2.0.0-
 PREMIUM PC OPTIMIZATION SOFTWARE
-![Capture](https://github.com/user-attachments/assets/28ec02cf-b39f-40fa-994e-148767b12f46)
-
+![1](https://github.com/user-attachments/assets/b09b721b-98ba-48ee-9e58-381f4855b800)
 
 
 FOR SERIAL KEY CONTACT ME ON :
